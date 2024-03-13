@@ -1,1 +1,0 @@
-# pratica1-programa-o
